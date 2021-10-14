@@ -67,4 +67,3 @@ Miscellaneous
      * English (native speaker)
      * French (some written knowledge)
 * Likes cats
-* Got Big Boss Rank in MGS2 lol
